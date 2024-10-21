@@ -1,6 +1,8 @@
-Olá meu nome é Rafael Camargo 
-Sou Estudante de pensamento computacional 
-  👉😎👈 🦅 
+ - Olá meu nome é Rafael Camargo 
+ - Sou Estudante de pensamento computacional 
+-  👉😎👈 🦅
+-  Gosto de Esportes
+-  VAI CORINTHIANS 🦅 🖤🤍
 
 
 
