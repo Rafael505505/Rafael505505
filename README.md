@@ -3,6 +3,8 @@
 -  👉😎👈 🦅
 -  Gosto de Esportes
 -  VAI CORINTHIANS 🦅 🖤🤍
+-  Entre em Contao Comigo
+-  rafael.camargo.marques@escola.pr.gov.br
 
 
 
